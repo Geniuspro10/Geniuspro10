@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Deny azonybi
+- 👀 I’m interested in README
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on social media
+- 📫 How to reach me 📞+6281775490257
